@@ -11,29 +11,25 @@ Undoubtably one of the great minds of our time, Lefebvre de Saboya challenged hi
     Me, myself and moi.
   </figcaption>
 </figure>
-Lefebvre de Saboya was born in December 1980, in Campo Grande, Mato Grosso do Sul, where he lived until he was 5 years old. Afterwards, he moved with his parents and sister to Olinda, Recife, Natal, Brasília and finally returned to Campo Grande in 1990. Until he was 16, he proved to be a great student.
+Lefebvre de Saboya was born in December 1980, in Campo Grande, Mato Grosso do Sul, where he lived until he was 5 years old. Afterward, he moved with his parents and sister to Olinda, Recife, Natal, Brasília and finally returned to Campo Grande in 1990. Until he was 16, he proved to be a great student.
 
-At 17, adolescence brought him rebellion: Lefebvre refused to attend classes because he found them boring - he knew what had been taught for a long time and considered the proposals too inferior to his intellectual capacity.
+At 17, adolescence brought him rebellion: Lefebvre refused to attend classes because he found them boring.
 
-At the age of 18, he entered the architecture school in Porto Alegre, where he met true loneliness. Until then, his work was sloppy and sloppy. Lefebvre soon found himself again in Campo Grande, where he began to work with Publicity and Propaganda. Lefebvre's ability was too great to be censored by mere clients of the agency. Therefore, he retired from the activity permanently.
+Lefebvre de Saboya admired the poets of the 19th century and wanted to experience the same bohemia as his inspirers. Had several loves made & broken. It is said that he wrote the most beautiful poems declaring his love, hatred, resentment, and hope.
 
-Lefebvre de Saboya admired the poets of the twentieth century and wanted to experience the same bohemia as his inspirers. Had several loves made & broken. It is said that he wrote the most beautiful poems declaring his love, hatred, resentment and hope.
+A demonstration of Lefebvre's curmudgeon in 2002, during the physics major. He argued with teachers who underestimated his reasoning ability. He did not attend classes anymore. He failed all subjects due to lack of frequency, but he obtained grade A in all the tests of the semester. 
 
-A demonstration of Lefebvre's curmudgeoned in 2002, during the Physics course. He argued with teachers who underestimated his reasoning ability. He did not attend classes anymore. He failed all subjects due to lack of frequency, but he obtained grade A in all the tests of the semester. Only when he could go to college at a distance did he get his diploma.
-
-Without studying, without attending classes and with great grades.
-
-Lefebvre de Saboya lived in Rio de Janeiro, where he wrote short stories, essays and began the production of his first novel. He left when the first opportunity found him.
+Lefebvre de Saboya lived in Rio de Janeiro, where he wrote short stories, essays and began the production of his first novel. He left when the opportunity found him.
 
 In 2012, he accepted, naively, a great challenge. Lefebvre did not know that when he entered that big commercial retail bank, his destiny would change.
 
-For five long years he lived in those bank branches, isolated from the outside world and away from family and friends. He understood that, for his survival, he needed to learn the routine and rituals of this merciless reality. He worked intelligently, obtaining incredible results, which was essential for his survival.
+For five long years, he lived in those bank branches, isolated from the outside world and away from family and friends. He understood that, for his survival, he needed to learn the routine and rituals of that merciless reality. He worked intelligently, obtaining incredible results, which was essential for his survival.
 
 Without ever giving up hope, he finally conquered freedom in 2018. His dismissal process is recognized as one of the fastest in the institution's history - the final chapter of a reality that today is confused with the bank's legends.
 
 Even today, their stories are whispered in the corridors by the people who still live there, despite the constant vigilance of the superintendents and executives who control the place.
 
-Lefebvre de Saboya deserves his recognition for not succumbing to the “current” trends in Literature and preserving the characteristics of good authors.
+Lefebvre de Saboya deserves his recognition for not succumbing to the “current” trends in literature and preserving the characteristics of good authors.
 
 - [E-mail](mailto:hello@llsaboya.com)
 - [Twitter](https://twitter.com/llsaboya)
