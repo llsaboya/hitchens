@@ -15,7 +15,7 @@ Lefebvre de Saboya was born in December 1980, in Campo Grande, Mato Grosso do Su
 
 At 17, adolescence brought him rebellion: Lefebvre refused to attend classes because he found them boring.
 
-Lefebvre de Saboya admired the poets of the 19th century and wanted to experience the same bohemia as his inspirers. Had several loves made & broken. It is said that he wrote the most beautiful poems declaring his love, hatred, resentment, and hope.
+Lefebvre de Saboya admired the poets of the 19th century and wanted to experience the same bohemia as his inspirers. Had several loves made & broken. He wrote the most beautiful poems declaring his love, hatred, resentment, and hope.
 
 A demonstration of Lefebvre's curmudgeon in 2002, during the physics major. He argued with teachers who underestimated his reasoning ability. He did not attend classes anymore. He failed all subjects due to lack of frequency, but he obtained grade A in all the tests of the semester. 
 
@@ -25,11 +25,11 @@ In 2012, he accepted, naively, a great challenge. Lefebvre did not know that whe
 
 For five long years, he lived in those bank branches, isolated from the outside world and away from family and friends. He understood that, for his survival, he needed to learn the routine and rituals of that merciless reality. He worked intelligently, obtaining incredible results, which was essential for his survival.
 
-Without ever giving up hope, he finally conquered freedom in 2018. His dismissal process is recognized as one of the fastest in the institution's history - the final chapter of a reality that today is confused with the bank's legends.
+Without ever giving up hope, he finally conquered freedom in 2018. His dismissal process is one of the fastest in the institution's history - the final chapter of a reality that today is one of the bank's legends.
 
-Even today, their stories are whispered in the corridors by the people who still live there, despite the constant vigilance of the superintendents and executives who control the place.
+Even today, their stories are whispered in the corridors by the people who still live there, despite the constant vigilance of the superintendents and executives controlling the place.
 
-Lefebvre de Saboya deserves his recognition for not succumbing to the “current” trends in literature and preserving the characteristics of good authors.
+Lefebvre de Saboya deserves his recognition for not succumbing to  “current” trends in literature and for preserving the characteristics of good authors.
 
 - [E-mail](mailto:hello@llsaboya.com)
 - [Twitter](https://twitter.com/llsaboya)
