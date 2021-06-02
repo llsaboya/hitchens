@@ -4,8 +4,7 @@ excerpt: "Hello World. This is a first post to start the writing process."
 categories:
     - literature
 tags:
-    - 5W2H
-    - Gestão de Qualidade
+    - tags
 layout: post
 author: "L.L. Saboya"
 ---
