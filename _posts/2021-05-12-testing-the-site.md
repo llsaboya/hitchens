@@ -1,6 +1,4 @@
 ---
-title: The first one
-excerpt: Hello World. This is a first post to start the writing process.
 categories:
     - literature
 tags:
